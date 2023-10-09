@@ -2,12 +2,9 @@
 ![cover_with_title](https://github.com/m-venturis/apako-dwro/assets/147306141/5c719d51-ed10-4682-853b-51f55a7f29e1)
 
 Παρασκευή 
-
-    17:30 οδήγηση μετά μουσικής (Χατζιδάκις) μέχρι το Maastricht 
-
-    20:30 άφιξη στο ξενοδοχείο [Amrath](https://www.booking.com/Share-yalipRR) 
-
-    21:00 δείπνο στο ΧΧΧ 
+- 17:30 οδήγηση μετά μουσικής (Χατζιδάκις) μέχρι το Maastricht 
+- 20:30 άφιξη στο ξενοδοχείο [Amrath](https://www.booking.com/Share-yalipRR) 
+- 21:00 δείπνο στο ΧΧΧ 
 
 Σάββατο 
 
