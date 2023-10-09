@@ -1,4 +1,7 @@
 
+![cover_with_title](https://github.com/m-venturis/apako-dwro/assets/147306141/5c719d51-ed10-4682-853b-51f55a7f29e1)
+
+
 παρασκευη 
 - 17:30 οδηγηση μετα μουσικης (Χατζιδακις) μεχρι το Maastricht
 - 20:30 αφιξη στο ξενοδοχείο ΧΧΧ
