@@ -26,7 +26,7 @@
 
 Κυριακή 
 
-- 11:00 πρωινό στο φούρνο ΧΧΧ 
+- 11:00 πρωινό στο φούρνο [Mathieu Hermans](https://maps.app.goo.gl/Xo6Bfak3SA5R3Xe5A) 
 
 - 11:30 οδήγηση μέχρι το Valkenburg 
 
