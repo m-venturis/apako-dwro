@@ -12,7 +12,7 @@
 
 - 11:30 βολτάρισμα "e-scavenger hunt" pt1 
 
-- 13:30 μεσημεριανό στο ΧΧΧ 
+- 13:30 μεσημεριανό στο [Marres](https://maps.app.goo.gl/zr2EiJpzFARwnGb19) 
 
 - 14:30 άραγμα ξενοδοχείο 
 
