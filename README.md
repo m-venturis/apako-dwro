@@ -32,7 +32,7 @@
 
 - 12:00 επίσκεψη στις σπηλιές 
 
-- 14:00 γεύμα στο ΧΧΧ 
+- 14:00 γεύμα στο [Ambrozijn](https://maps.app.goo.gl/RWP9kTfwuRqn3jpC9) 
 
 - 14:30 οδήγηση μέχρι το Hoensbroek 
 
