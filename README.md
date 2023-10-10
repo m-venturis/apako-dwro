@@ -4,7 +4,7 @@
 Παρασκευή 
 - 17:30 οδήγηση μετά μουσικής (Χατζιδάκις) μέχρι το Maastricht 
 - 20:30 άφιξη στο ξενοδοχείο [Amrath](https://www.booking.com/Share-yalipRR) 
-- 21:00 δείπνο στο ΧΧΧ 
+- 21:00 δείπνο στο [Harry's](https://maps.app.goo.gl/zr2EiJpzFARwnGb19) για σνίτσελ 
 
 Σάββατο 
 
