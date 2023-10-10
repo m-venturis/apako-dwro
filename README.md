@@ -12,7 +12,7 @@
 
 - 11:30 βολτάρισμα "e-scavenger hunt" pt1 
 
-- 13:30 μεσημεριανό στο [Marres](https://maps.app.goo.gl/zr2EiJpzFARwnGb19) 
+- 13:30 μεσημεριανό στο [Marres](https://maps.app.goo.gl/BSyq3jQKYSfHyiam6) 
 
 - 14:30 άραγμα ξενοδοχείο 
 
@@ -20,9 +20,9 @@
 
 - 17:00 βολτάρισμα "e-scavenger hunt" pt2 
 
-- 19:00 δείπνο στο ΧΧΧ 
+- 19:00 δείπνο στο [Mandalin](https://maps.app.goo.gl/EtCQHwoUg6JEspZX6)
 
-- 21:00 κοκτειλακια στο ΧΧΧ 
+- 21:00 κοκτειλακια στο [Mr Smith](https://maps.app.goo.gl/Jmpg9FzH5d9edzQe7) 
 
 Κυριακή 
 
