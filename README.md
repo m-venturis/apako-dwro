@@ -16,7 +16,7 @@
 
 - 14:30 άραγμα ξενοδοχείο 
 
-- 16:30 παγωτό στο ΧΧΧ 
+- 16:30 παγωτό στο [Visser](https://maps.app.goo.gl/JaXe383dAyoXRiaq5) 
 
 - 17:00 βολτάρισμα "e-scavenger hunt" pt2 
 
