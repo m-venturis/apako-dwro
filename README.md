@@ -8,7 +8,7 @@
 
 Σάββατο 
 
-- 11:00 πρωινό στο φούρνο ΧΧΧ 
+- 11:00 πρωινό στο [Livin' Room](https://maps.app.goo.gl/zr2EiJpzFARwnGb19)
 
 - 11:30 βολτάρισμα "e-scavenger hunt" pt1 
 
